@@ -1,4 +1,4 @@
-<img src="https://i.pinimg.com/originals/f5/03/b5/f503b5d3eceb6a2e621773eb53a2f39c.gif" alt="Banner" width="100%" />
+<img src="https://imgur.com/gallery/morbidly-HdG4qtA" alt="Banner" width="100%" />
 
 ## 📌 About Me
 - Hi. I'm Morbidly or Dead.Fvck, I go by either. Point is you're here for a quick guide to what you've downloaded.
